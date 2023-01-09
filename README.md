@@ -1,2 +1,1 @@
 Roman Sosiak
-17
